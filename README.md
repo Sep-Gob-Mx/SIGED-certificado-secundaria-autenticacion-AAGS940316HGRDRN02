@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AAGS940316HGRDRN02
+AAGS940316HGRDRN02
